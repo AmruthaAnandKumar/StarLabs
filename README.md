@@ -1,1 +1,1 @@
-# Chinnari_wedding
+# Amrutha_wedding
